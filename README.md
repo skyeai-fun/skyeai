@@ -376,7 +376,7 @@
  
  - **Twitter:** [@Skyeaifun](https://x.com/Skyeaifun)
  - **Website:** https://skyeai.fun
- - **Contract:** (To be announced)
+ - **Contract:** skyfunsol@gmail.com
  
  ---
  
